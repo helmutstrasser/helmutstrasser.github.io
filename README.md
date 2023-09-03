@@ -1,1 +1,0 @@
-# helmutstrasser.github.io
